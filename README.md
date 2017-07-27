@@ -1,7 +1,4 @@
-# magnum-opiate
-The venue for cereal publication of The Magnum Opiate: a story of mystery, and intriguing.
-
-The Magnum Opiate (a cereal story)
+The Magnum Opiate: a story of mystery, and intriguing.
 =================
 
 "Boom!" said Trey, as he fired another one from his .44 magnum.  Another employee, that is. This is not to say Trey wasn't in the killing business, because he certainly was. But he also discharged his employees (with cause) using his gun, by pointing it at them and saying, "Boom". Ironically, Trey had actually never killed another person before, despite spending over 15 years in the M&A department at ACCENTUATE, a top-tier firm with no soft underbelly to speak of. This was quite surprising given that cold-blooded murder made up 50% of the mandate of ACCENTUATE's Murders & Acquisitions department.
@@ -42,15 +39,15 @@ Chapter 3
 The file was self-contained within a yellowing folder marked _SECRETS WITHIN!_ in large, blocky letters. Trey carefully positioned himself on the edge if his seat, and opened it. Here is what he saw:
 
 >*Operation Murder The Target*
-> Agent: Trey [redacted]
-> Target: Saccharine Zento
-> Last seen: [redacted]
-> Objective: Eliminate the target. Leave no traces of radioactivity.
-> Maximum budget: $74,000
-> Minimum budget: $74,000
-> Budget explanation: Three years ago, the agency was awarded an Emergency Measurements grant in response to the entire PR department taking vacation the same week. In order to have this grant renewed, we need to demonstrate our financial need by spending all of it. And yet, why spend more? Thus, the agent is directed to spend exactly $74,000 on the operation.
-> Budget currency: Choice of Canadian, American, or Australian dollars left to discretion of the agent based on field conditions.
-> Additional details: Saccharine Zento is an attourney whose services have been retained by Stingray Dental Corporate Corporation, Inc. to evaluate a potential acquisition of Blue Cellphones Retaining Walls Limited, by Stingray. Target believes the acquisition is based on unsound logic and seeks to prevent it. Stingray, a retainer manufacturer, has retained our services to ensure the acquisition proceeds as planned. Target was contacted by ACCENTUATE and demanded bribe of $75,000 to withdraw her objections. Bribe outside budgetary constraints.
+> - Agent: Trey [redacted]
+> - Target: Saccharine Zento
+> - Last seen: [redacted]
+> - Objective: Eliminate the target. Leave no traces of radioactivity.
+> - Maximum budget: $74,000
+> - Minimum budget: $74,000
+> - Budget explanation: Three years ago, the agency was awarded an Emergency Measurements grant in response to the entire PR department taking vacation the same week. In order to have this grant renewed, we need to demonstrate our financial need by spending all of it. And yet, why spend more? Thus, the agent is directed to spend exactly $74,000 on the operation.
+> - Budget currency: Choice of Canadian, American, or Australian dollars left to discretion of the agent based on field conditions.
+> - Additional details: Saccharine Zento is an attourney whose services have been retained by Stingray Dental Corporate Corporation, Inc. to evaluate a potential acquisition of Blue Cellphones Retaining Walls Limited, by Stingray. Target believes the acquisition is based on unsound logic and seeks to prevent it. Stingray, a retainer manufacturer, has retained our services to ensure the acquisition proceeds as planned. Target was contacted by ACCENTUATE and demanded bribe of $75,000 to withdraw her objections. Bribe outside budgetary constraints.
 
 It was a textbook case if Trey ever saw one. He put his textbook inside it and started to formulate a plan.
 
@@ -98,7 +95,7 @@ A few days’ preparation later, they were lunched and launched. Rowlend, looked
 
 Having very little experience in this domain, Trey needed a killer role model. He found a TV show called _24_ in which the main character, Eddie Bauer, is quite a proficient assassin. Trey decided to watch the first season to gain some skills, hoping that this strategy would bring to bear fruit. He popped in the DVD into the DVD orifice and opened a bag full of Piss & Vinegar potato chips -- his favourite flavour. (Actually, the flavour name had recently been changed to Dead Sea Piss & Tangy Vinegar. Trey had heard the Dead Sea got its name from its high concentration of the stuff, which prevented marine life from growing there.)
 
-24 hours later.
+24 hours later
 -----------------------
 Trey turned off the TV. Well, that show wasn't going to make the bucket list of Trey's top 24 TV shows, that was for sure. (Trey actually kept his list of favourite shows in a very secure location; as it turned out, he liked to keep his house of cards close to his chest.) With only 16 hours remaining in his mission, Trey felt he should probably get started. And yet, he had just finished a full day's work plus 24 hours of binge TV watching. He was _tired_ with a lower case "t" and needed some Beauty Sleeping. In order to relax, he put the mission brief under his bed: out of sight, out of his mind. Trey knew there was a risk that he might sleep a little bit too long, as Friday had chewed up his alarm clock last Thursday. But if Trey knew one thing, it was this: you didn't go into the killing business if you couldn't handle a bit of risk.
 

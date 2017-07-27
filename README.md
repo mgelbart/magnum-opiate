@@ -1,6 +1,18 @@
 The Magnum Opiate: a story of mystery, and intriguing.
 =================
 
+This book is dedicated to my readers. You know who you are.
+
+------------
+
+_Disclaimer: this story is not in a relationship with any actual person, living or dead._
+
+------------
+
+
+Chapter 1
+---------
+
 "Boom!" said Trey, as he fired another one from his .44 magnum.  Another employee, that is. This is not to say Trey wasn't in the killing business, because he certainly was. But he also discharged his employees (with cause) using his gun, by pointing it at them and saying, "Boom". Ironically, Trey had actually never killed another person before, despite spending over 15 years in the M&A department at ACCENTUATE, a top-tier firm with no soft underbelly to speak of. This was quite surprising given that cold-blooded murder made up 50% of the mandate of ACCENTUATE's Murders & Acquisitions department.
 
 Trey always knew how to make the most of a situation, to say the least. Today he was looking into his expense reports for his past four missions, as he hadn't yet been paid back and he was late on his rent payments. The landlord has already made empty threats to evict him, and Trey was a glass half full kind of guy. He approached the finance office on the 14th floor of ACCENTUATE's downtown office. 

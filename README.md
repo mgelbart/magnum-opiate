@@ -89,7 +89,7 @@ When seen in a mirror, Trudi’s somewhat unusual response reflected the fact th
 
 Later that evening, Rowlend met his comrade at arms length, Neil. Indeed, it’s a little-known fact that after venturing to the moon and back, Neil Armstrong joined ACCENTUATE, first in Business Development, Sales & Marketing and then, more recently, M&A. The timing had worked out perfectly, as ACCENTUATE needed a diversity hire and had no former astronauts among its ranks and files.
 
-Rowlend approached the shrouded figure of Neil, who had his headphones on. Rowlend tapped the chip on his shoulder. “Neil!” he whispered violently, a few droplets of spittle raining down on Neil’s parade. Neil started, startled. “Hey there, mate,” said Neil. “I was just listening to my favorite song. You know, the one that goes, _I’ve got soul but I’m not solider_…”
+Rowlend approached the shrouded figure of Neil, who had his headphones on. Rowlend tapped the chip on his shoulder. “Neil!” he whispered violently, a few droplets of spittle raining down on Neil’s parade. Neil started, startled. “Hey there, mate,” said Neil. “I was just listening to my favorite song. You know, the one that goes, _I’ve got soul but I’m not soldier_…”
 
 Rowlend didn’t have time for this nonsense. “Listen, Neil,” Rowlend whispered urgently. “Trudi has been acting weird lately. She may be on to us. I’m getting worried.”
 

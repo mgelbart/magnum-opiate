@@ -69,6 +69,9 @@ Later that evening (41 hours remaining)
 
 Trey opened his briefcase and glanced at the brief again. He did not wear briefs, except on Wednesdays, and, according to his poodle, Friday, today was Tuesday. So he was a commando commando, so to speak. Trey wondered why some parts of the document were redacted. Were they redacted by the original author for Rowlend's benefit, or by Rowlend for Trey's benefit, or maybe -- by extension -- by some higher being for _his_ readers' benefit. And if so, _why_? It was all a bit much for a Tuesday.
 
+Chapter 4
+-----------
+
 Rowlend stumbled down the cobblestone path to his suburban home. The neighbour’s apple tree blocked the sun just right so that you couldn’t see his five o’clock shadow. As he entered, he was greeted with a smile -- for better or for worse -- by his better half, Trudi, whose yellow cardigan looked worse for wear. They sat down to dinner amidst the ringing of his antique biological clock, which Rowlend inherited from his grandfather. _BONG_, went the clock. _BONG_, _BONG_, _BONG_, _BONG_. And then, one final _BONGGGGG_. (Rowlend’s `pedantic Wall` did not quite understand why the clock was striking six, given that the length of Rowlend’s facial hair indicated it was more like five. Alas, the biological clock was not yet adjusted to the recent daylight savings time shift.)
 
 “How was your day today, agave dear?” Trudi asked. Needless to say, their household was sugar free.

@@ -174,7 +174,7 @@ Neil was responsible for navigation from their moon landing site to the location
 
 "The good news is that there is no bad news," replied Neil.
 
-Rowlend pondered this for about five moon-minutes, which are like regular minutes except that they typically consume much more taxpayer money in order to experience. Rowlend eventually surmised that the purportedly non-existent bad news, had he asked to hear it first, would not have been so bad after all. He relaxed and moved on. A fortenight later, they reached their destination (_fortenight_ is Italian for forteen very loud nights. The noise was due, primarily, to boisterous soirées that the locals held on the moon's surface. Rowlend was glad he had purchased third party liability insurance, as he had accidentally deactivated the spacesuit of a partygoer at the third such event they encountered).
+Rowlend pondered this for about five moon-minutes, which are like regular minutes except that they typically consume much more taxpayer money in order to experience. Rowlend eventually surmised that the purportedly non-existent bad news, had he asked to hear it first, would not have been so bad after all. He relaxed and moved on. A fortenight later, they reached their destination. (_Fortenight_ is Italian for forteen very loud nights. The noise was due, primarily, to boisterous soirées that the locals held on the moon's surface. Rowlend was glad he had purchased third party liability insurance, as he had accidentally deactivated the spacesuit of a partygoer at the third such event they encountered.)
 
 At the destination
 ---------------------

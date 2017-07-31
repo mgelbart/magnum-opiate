@@ -1,11 +1,11 @@
 The Magnum Opiate: a story of mystery, and intriguing.
 =================
 
-This book is dedicated to my readers. You know who you are.
+This book is dedicated to its readers. You know who you are.
 
 ------------
 
-_Disclaimer: this story is not in a relationship with any actual person, living or dead._
+_Disclaimer: this story is not in a relationship with any actual person, living or dead. It's complicated._
 
 ------------
 

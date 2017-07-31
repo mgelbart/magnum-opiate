@@ -181,7 +181,7 @@ At the destination
 
 At the specified location they found an abandoned hut. Outside the hut was a flagpole. On the flagpole was a pair of American flag underpants. They were clean. Rowlend sighed in relief and entered the hut using the security code provided in Neil's instructions. His predecessors had certainly gone to a lot of trouble to hide their deception.
 
-Rowlend and Neil entered the hut. Within, they found 3 doors, each one with a live goat behind it. Rowlend was surprised. He figured that the probability of seeing such a thing here, on the moon and without water or an oxygen supply, could not be more than 1/3. Neil, a bumbling optimist, foolishly put the figure at 1/2.
+Within, they found 3 doors, each one with a live goat behind it. Rowlend was surprised. He figured that the probability of seeing such a thing here, on the moon and without water or an oxygen supply, could not be more than 1/3. Neil, a bumbling optimist, foolishly put the figure at 1/2.
 
 Aside from the doors, the room contained a large red button. Above the button was a sign with _WARNING: RED BUTTON BELOW_ written in large block letters. Rowlend pressed the button. After about 15 minutes, a hologram appeared. It took the shape of a middle-aged government official wearing a fairly tattered space suit. The hologram spoke:
 

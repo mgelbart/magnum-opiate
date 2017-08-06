@@ -211,3 +211,23 @@ During the meeting, Charles explained an elementary magic trick, the bait and sw
 The meeting concluded with desserts including a sumptuous lime pie (kiwi pie being forbidden for obvious reasons). The key to the lime pie, said Cassandra (the pie's progenitor), was not to overcook it. Cassandra also warned Jess to save a piece for Charles. Otherwise, she cautioned, he would speak his piece on sharing, caring, and arithmetic. Jess eagerly abided; during her childhood she had heard more than enough about the 3 R's.
 
 Then, suddenly, she had a premonition: within 3 business days, she would be notified that the moon vault had been opened! Jess dropped her pie and bolted out the door. It was time.
+
+TGIF
+-------
+
+It was just another causal Friday at the office for Sal, a 3rd generation talent scout at Smith, Smith & Lloyd-Smith Insurance Brokers Limited. Causal Fridays (also known as CFs; cf. casual Fridays) were Sal's favourite days at work. For example, it was Friday _because_ yesterday was Thursday. And perhaps even _because_ tomorrow would be Saturday. Correlation was not the same as causation _because_ he had taken a statistics course. He sipped his coffee _because_ it was delicious. And Sal knew it must be delicious for a reason.  Everything just made sense! He only wished he didn't have to wear this ridiculous suit and tie every day. But, other than that, all was well.
+
+That is, all was well until his moon alarm clock rang. This had happened before, sure. But never on a causal Friday. Sal frantically dug through his desk drawers and recovered his false alarm. He regarded it, but it was silent. He regarded it earnestly. Still nothing. Then it hit him like a shitload of bricks. Could this be a non-false alarm? Could the moon alarm's ringing really be caused by the moon vault's opening? The implications shocked Sal to the core of his apple, seeds and all. He did not think this day would ever come, for the evidence of the fabrication of the moon landing had been well-hidden on the dark side of the moon in a remote hut guarded by the most perplexing probability puzzle known to humanity. But Sal was trained for this eventuality. He knew what he had to do. He removed his resignation letter from an unsealed envelope and placed it in a sealed envelope, but not after sealing it. He placed the envelope on his desk. And then he strolled out of there like a badass metaphor.
+
+17 minutes remaining
+--------------------------
+
+Trey pulled up in the parking lot of Stringray Dental and was poised to carry out this foul deed. The timing could not have been worse, as his nasal drip had just started acting up again. He really looked forward to life post-nasal drip, should that day every come.  He stepped out of his car and slammed the door shut. Trey was not one to come between a car's door and its chassis, so the experience was relatively painless.
+
+He approached the building. Near the entrance was a placard that read, "Funding for this building was generously provided by anonymous donor Stewart D. Baker. At the time of construction, this was both the tallest and newest building in a 100-mile radius." As always, Trey was disgusted by the use of the imperial measurement system, but otherwise found the information quite interesting. He pushed the door. It did not open. He pulled the door. It did not open. He simultaneously pushed and pulled the door. It did not open. The door was locked.
+
+Trey knew that assassination was a tricky business, but was not prepared for the number of obstacles he would face. "This is too much for me," Trey said to himself. "I'm not young anymore… I’m pushing 30, 40 and 50." He said this not because he had a time machine, but because he didn't understand the expression.
+
+"Any buddy in there?!" Trey yelled towards some open windows on the 4th floor. (Clarification: Trey was so panicked that he could not remember whether he was in Europe or North America, but he did remember his quantum mechanics. Thus, the windows in question were simultaneously on the 3rd and 4th floors until the location issue could be resolved.) Just then, someone leaned out of a lower window and dangled a long wooden stick in front of Trey's eyes. He looked up. Of all people in this enormous building, what were the chances? The dangling pointer belonged to none other than his target, Saccharine Zento herself. "Hello, Trey," she purred. "I've been expecting you."
+
+Trey was not expecting her to be expecting him. He did not know what his next move should be. But, then, out of the corner of his eye he saw an American flag. That's right, he was a basket case in the American breadbasket! That settled it. Alas, a measurement had been made. The building collapsed.

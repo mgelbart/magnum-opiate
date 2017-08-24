@@ -222,11 +222,11 @@ That is, all was well until his moon alarm clock rang. This had happened before,
 17 minutes remaining
 --------------------------
 
-Trey pulled up in the parking lot of Stringray Dental and was poised to carry out this foul deed. The timing could not have been worse, as his nasal drip had just started acting up again. He really looked forward to life post–nasal drip, should that day ever come.  He stepped out of his car and slammed the door shut. Trey was not one to come between a car's door and its chassis, so the experience was relatively painless.
+Trey pulled up in the parking lot of Stringray Dental and was poised to carry out this foul deed. The timing could not have been worse, as his nasal drip had just started acting up again. He really looked forward to life post–nasal drip, should that day ever come. He stepped out of his car and slammed the door shut. Trey was not one to come between a car's door and its chassis, so the experience was relatively painless.
 
 He approached the building. Near the entrance was a placard that read, "Funding for this building was generously provided by anonymous donor Stewart D. Baker. At the time of construction, this was both the tallest and newest building in a 100-mile radius." As always, Trey was disgusted by the use of the imperial measurement system, but otherwise found the information quite interesting. He pushed the door. It did not open. He pulled the door. It did not open. He simultaneously pushed and pulled the door. It did not open. The door was locked.
 
-Trey knew that assassination was a tricky business, but was not prepared for the number of obstacles he would face. "This is too much for me," Trey said to himself. "I'm not young anymore… I’m pushing 30, 40 and 50." He said this not because he had a time machine, but because he didn't understand the expression.
+Trey knew that assassination was a tricky business, but was not prepared for the number of obstacles he would face. "This is too much for me," Trey said to himself. "I'm not young anymore... I’m pushing 30, 40 and 50." He said this not because he had a time machine, but because he didn't understand the expression.
 
 "Any buddy in there?!" Trey yelled towards some open windows a few storeys above ground. Trey was so panicked that he could not remember where he was. As a result, he wasn't sure if the windows in question were on the 3rd floor—by European convention—or the 4th floor—by North American convention. But he did remember his quantum mechanics: the windows were simultaneously on the 3rd and 4th floors until the location issue could be resolved.
 

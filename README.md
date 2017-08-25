@@ -232,8 +232,6 @@ Trey was not expecting her to be expecting him, a fact that Zento was expecting 
 
 Chapter 5
 ------------
-Chapter 5
-------------
 
 “So,” began Rowlend, “um, what exactly _is_ a handbasket? It seems worth knowing if we’re going to Hell in one.” Neil, however, was not paying Rowlend any attention. Being now only a few kilometres away, they were already able to pick up Hell’s local radio station, and Neil was listening to a ball game between the home team, Bats out of Hell, and the visitors, Homerun’s Odyssey. With such a ridiculous names, Neil was surprised _anyone_ would go to bat for these teams, let alone the players. 
 

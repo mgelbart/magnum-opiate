@@ -1,7 +1,7 @@
 The Magnum Opiate: a story of mystery, and intriguing.
 =================
 
-_Disclaimer: this story is not in a relationship with any actual person, living or dead. It's complicated._
+_Disclaimer: coincidentally, this story is not in a relationship with any actual person, living or dead. It's complicated._
 
 ------------
 
@@ -70,36 +70,36 @@ Chapter 4
 
 Rowlend stumbled down the cobblestone path to his suburban home. The neighbour’s apple tree blocked the sun just right so that you couldn’t see his five o’clock shadow. As he entered, he was greeted with a smile -- for better or for worse -- by his better half, Trudi, whose yellow cardigan looked worse for wear. They sat down to dinner amidst the ringing of his antique biological clock, which Rowlend inherited from his grandfather. _BONG_, went the clock. _BONG_, _BONG_, _BONG_, _BONG_. And then, one final _BONGGGGG_. (Rowlend’s `pedantic Wall` did not quite understand why the clock was striking six, given that the length of Rowlend’s facial hair indicated it was more like five. Alas, the biological clock was not yet adjusted to the recent daylight savings time shift.)
 
-“How was your day today, agave dear?” Trudi asked. Needless to say, their household was sugar free.
+"How was your day today, agave dear?" Trudi asked. Needless to say, their household was sugar free.
 
 Rowlend tried to snort and sigh at the same time. Unfortunately, he did not suceed in either endeavour. The room filled with an oppressive silence, which was only broken several minutes later by the shattering of Rowlend’s wine glass. Determination of the number of shards of glass, their shapes and sizes, and the rate of absorption of Rowlend’s full-bodied crimson wine into the rug are left as exercises to the reader. Words do not suffice it to say, Rowland had had a bad, bad day.
 
 Upon retiring to the drawing room
 -----------------------------------------
-Rowlend was not retired, nor did he like to draw.  He said as much to Trudi, which surprised her, as he often said little. “It’s that Trey character again... he is driving me off the wall,” he exclaimed!
+Rowlend was not retired, nor did he like to draw.  He said as much to Trudi, which surprised her, as he often said little. "It’s that Trey character again... he is driving me off the wall," he exclaimed!
 
-“Don’t let him get to you,” Trudi replied sympathetically. “Is his odour bothering you again? If he’s not careful, his career could be on Jeopardy! Imagine if nobody can stand standing near him. As I always say,” she continued, “success is 1% inspiration, 99% antiperspirant.”
+"Don’t let him get to you," Trudi replied sympathetically. "Is his odour bothering you again? If he’s not careful, his career could be on Jeopardy! Imagine if nobody can stand standing near him. As I always say," she continued, "success is 1% inspiration, 99% antiperspirant."
 
 When seen in a mirror, Trudi’s somewhat unusual response reflected the fact that, ostensibly, she had no idea what her husband really did. Murder _was_ illegal after all. So Rowlend had spun a web of lies regarding not only Trey, but his entire career. He now had to tread carefully on this web, which was by no means world-wide. One misstep and all the beans would be spilled. Which would be the last thing he needed, Rowlend thought, as he eyed his newly stained rug. What a mess.
 
 
 Later that evening, Rowlend met his comrade at arms length, Neil. Indeed, it’s a little-known fact that after venturing to the moon and back, Neil Armstrong joined ACCENTUATE, first in Business Development, Sales & Marketing and then, more recently, M&A. The timing had worked out perfectly, as ACCENTUATE needed a diversity hire and had no former astronauts among its ranks and files.
 
-Rowlend approached the shrouded figure of Neil, who had his headphones on. Rowlend tapped the chip on his shoulder. “Neil!” he whispered violently, a few droplets of spittle raining down on Neil’s parade. Neil started, startled. “Hey there, mate,” said Neil. “I was just listening to my favorite song. You know, the one that goes, _I’ve got soul but I’m not soldier_…”
+Rowlend approached the shrouded figure of Neil, who had his headphones on. Rowlend tapped the chip on his shoulder. "Neil!" he whispered violently, a few droplets of spittle raining down on Neil’s parade. Neil started, startled. "Hey there, mate," said Neil. "I was just listening to my favorite song. You know, the one that goes, _I’ve got soul but I’m not soldier_..."
 
-Rowlend didn’t have time for this nonsense. “Listen, Neil,” Rowlend whispered urgently. “Trudi has been acting weird lately. She may be on to us. I’m getting worried.”
+Rowlend didn’t have time for this nonsense. "Listen, Neil," Rowlend whispered urgently. "Trudi has been acting weird lately. She may be on to us. I’m getting worried."
 
-“What did she say?”  
+"What did she say?"  
 
-“Something about _Jeopardy!_” Rowlend replied. “Inserted a little awkwardly into a sentence, too. Maybe it’s a message. You know, one of those association things like… _Jeopardy!_… Alex Trebek… Alexander… Alexander the Great… Great… Greater… Grater… Cheese Grater… Sharp Cheddar… Cheeseburger… Double Cheseburger… Meat… Slaughterhouse… Blades… and, finally… Punishment. Neil, I don’t want to be punished for what I’ve done. For what _we’ve_ done.”
+"Something about _Jeopardy!_" Rowlend replied. "Inserted a little awkwardly into a sentence, too. Maybe it’s a message. You know, one of those association things like… _Jeopardy!_… Alex Trebek… Alexander… Alexander the Great… Great… Greater… Grater… Cheese Grater… Sharp Cheddar… Cheeseburger… Double Cheseburger… Meat… Slaughterhouse… Blades… and, finally… Punishment. Neil, I don’t want to be punished for what I’ve done. For what _we’ve_ done."
 
 Neil pondered this new tidbit of information. While these were accusations he would take to his grave, he wasn’t sure whether he could trust Rowlend’s account of what Trudi had said. It was a classic he-said-she-said.
 
-Just then, an image of the Earth, proud and beautiful, filled his eye’s mind of its own. Neil knew what he had to do. He donned his space suit, and then doffed it. Then he donned it again. He always knew the moment might eventually come. They needed to recover the documents before it was too late.*
+Just then, an image of the Earth, proud and beautiful, filled his eye’s mind of its own. Neil knew what he had to do. He donned his space suit, and then doffed it. Then he donned it again. He always knew the moment might eventually come. They needed to recover the documents before it was too late.†
 
 A few days’ preparation later, they were lunched and launched. Rowlend, looked around him. His jaw dropped, but it did not hit the floor. Nor could it, for there was no floor beneath them… just the unimaginable vastness of outer space. As someone with an outie, Rowlend always suspected this day would come, even if he had to wait light years for it. He hoped the galaxy was ready for Rowland T. Harrison III.
 
-*The documents in question, in case the reader would like to know, contain definitive proof that the United States moon landing was indeed faked, as some conspiracy theorists contend. The documents were buried in the safest place known to man at that time. Neil and Rowlend were on their way to the moon to recover the documents and destroy them, once and for all.
+†The documents in question, in case the reader would like to know, contain definitive proof that the United States moon landing was indeed faked, as some conspiracy theorists contend. The documents were buried in the safest place known to man at that time. Neil and Rowlend were on their way to the moon to recover the documents and destroy them, once and for all.
 
 40 hours remaining
 -----------------------
@@ -117,7 +117,7 @@ All was well aboard the _Desiderata_. It was a worthy vessel, equipped with ever
 
 Rowlend opened the snack packed by his loving family: heirloom tomatoes, zucchini sticks, and couple radians of stolen carrot cake (stolen because Trudi had intended to bake her cake and eat it too, but Rowlend had snatched it away upon his departure and shoved it into his suitcase without so much as a tonne of guilt. This made perfect sense at the time, as he couldn’t possibly afford an extra tonne of weight to be added to the spaceship’s already considerable load). Neil, on the other hand, only ate a pack of raisins d’être. They were his favourite snack: sweet, shrivelled, and succulent.
 
-Rowlend and Neil arrived safely on the moon without getting hitched. They parked the _Desiderata_ near the pointy part of the crescent, but not right at the point itself which would have posed a risk of puncturing the vessel. Rowlend’s first few steps on the moon were exhilarating. He now understood how Michael Jackson would have felt, had he ever been on the moon. “This is wonderful!” exclaimed Rowlend. “I feel so _light_, so _free_, as if all my worries were left on Earth. There is nobody here, Neil! The moon is my Oyster card.” He glanced over at his partner-in-crime, who was taking a step or two himself. “Now now there, Neil, mind the gap between those two craters. Wouldn’t want you falling. Oh, Neil, I’m so glad you brought me here. I feel wonderful! I feel like… like all these atoms joined forces in this totally improbable way to form _me_, Rowlend, just so I could enjoy this one moment of lunar bliss.” Some would say Rowlend had entered the territory known as rambling. He continued: “Oh, Neil! Allow me to compose a sonnet, Neil, to commemorate this moment—”
+Rowlend and Neil arrived safely on the moon without getting hitched. They parked the _Desiderata_ near the pointy part of the crescent, but not right at the point itself which would have posed a risk of puncturing the vessel. Rowlend’s first few steps on the moon were exhilarating. He now understood how Michael Jackson would have felt, had he ever been on the moon. "This is wonderful!" exclaimed Rowlend. "I feel so _light_, so _free_, as if all my worries were left on Earth. There is nobody here, Neil! The moon is my Oyster card." He glanced over at his partner-in-crime, who was taking a step or two himself. "Now now there, Neil, mind the gap between those two craters. Wouldn’t want you falling. Oh, Neil, I’m so glad you brought me here. I feel wonderful! I feel like… like all these atoms joined forces in this totally improbable way to form _me_, Rowlend, just so I could enjoy this one moment of lunar bliss." Some would say Rowlend had entered the territory known as rambling. He continued: "Oh, Neil! Allow me to compose a sonnet, Neil, to commemorate this moment—"
 
 At this moment, though, something other than a sonnet reading transpired. Neil gave Rowlend a significant look and tapped his spacesuit. They hadn’t turned on the radios yet. Neil hoped Rowlend hadn’t said anything of import.
 
@@ -146,17 +146,17 @@ An earlier part of this text contains a factual error, which is highly problemat
 The phone call
 ------------------
 
-“Hello?” Rowlend answered tentatively.
+"Hello?" Rowlend answered tentatively.
 
-“Hello, am I speaking to Rich Delaney? I would like to discuss our _squid quo pro_ arrangement over a seafood dinner at your earliest convenience.” said the Vice President.
+"Hello, am I speaking to Rich Delaney? I would like to discuss our _squid quo pro_ arrangement over a seafood dinner at your earliest convenience." said the Vice President.
 
 Rowlend paused.
 
 "To your favourite tune of _Two Million Dollars_," added the VP with the subtlety of a slightly below-average intellect, which was no coincidence.
 
-“I’m sorry,” said Rowlend, “I'm all for Rich getting richer, and a wide range of other phenomena as well, in fact. But this is Rowland T. Harrison III. I think you have the wrong number.”
+"I’m sorry," said Rowlend, "I'm all for Rich getting richer, and a wide range of other phenomena as well, in fact. But this is Rowland T. Harrison III. I think you have the wrong number."
 
-“Oh, is that so?” mused the Vice President. “Alright then. Good day to you, Mr. Harrison III. Cheers!” The VP hung up unceremoniously.
+"Oh, is that so?" mused the Vice President. "Alright then. Good day to you, Mr. Harrison III. Cheers!" The VP hung up unceremoniously.
 
 As mentioned above, but not too far above, this call did not impact Rowlend's life in any way, shape, form, or function. Although they weren’t in this case, appearances can be deceiving.
 
@@ -233,12 +233,41 @@ Trey was not expecting her to be expecting him, a fact that Zento was expecting 
 Chapter 5
 ------------
 
-“So,” began Rowlend, “um, what exactly _is_ a handbasket? It seems worth knowing if we’re going to Hell in one.” Neil, however, was not paying Rowlend any attention. Being now only a few kilometres away, they were already able to pick up Hell’s local radio station, and Neil was listening to a ball game between the home team, Bats out of Hell, and the visitors, Homerun’s Odyssey. With such a ridiculous names, Neil was surprised _anyone_ would go to bat for these teams, let alone the players. 
+"So," began Rowlend, "um, what exactly _is_ a handbasket? It seems worth knowing if we’re going to Hell in one." Neil, however, was not paying Rowlend any attention. Being now only a few kilometres away, they were already able to pick up Hell’s local radio station, and Neil was listening to a ball game between the home team, Bats out of Hell, and the visitors, Homerun’s Odyssey. With such a ridiculous names, Neil was surprised _anyone_ would go to bat for these teams, let alone the players. 
 
 After a few more minutes time-lapsed, Rowlend could start to see Hell through the handbasket’s large window (namely, the non-existent upper part). With such an eminent domain name, Rowlend assumed the place had many e-visitors, but that real actual tourists were more rare. And no wonder! It was a hell of a trip, and while the handbasket only had one class, Rowlend didn’t exactly think of it as first class. Exhausted, he turned around and took another look behind them. Having not been an astronaut in his previous life, unlike Neil, who, very much like Neil, had been an astronaut, Rowlend still marvelled at the vastness of outer space. The universe certainly contains more atoms than you can shake a stick at.
 
 The handbasket slowed to a halt, and then slowed further. Rowlend disembarked, and Neil alighted. Fortunately, neither of them ignited, despite their fears to the contrary (i.e. them igniting). Instead, they were directed through a series of walkways plastered with large advertisements for a foreign bank, with unhelpful messages such as _Hell is the underworld’s second largest exporter of pitchforks_ and _Heaven is no tax haven_ and _You can’t judge an open book by its cover_ and, perhaps most disturbingly, _If a stick has two short ends, eat a carrot_. Rowlend wished _he_ was plastered but, alas, he hadn’t been to Paris in ages. 
 
-Eventually they were directed to the customs and immigration area. “Welcome to Hell,” the agent spoke. “Do you have any intentions to declare?” Rowlend’s mouth dried up like a well. Should he declare them or not? He remained silent, but his heart was pounding a mile a minute. Just then, Neil spoke up: “Yessir! We plan to get the hell out of here, find a man named Trey, and apprehend him before he murders Zento, all the while keeping the dreadful secret that the moon landing was faked.” 
+Eventually they were directed to the customs and immigration area. "Welcome to Hell," the agent spoke. "Do you have any intentions to declare?" Rowlend’s mouth dried up like a well. Should he declare them or not? He remained silent, but his heart was pounding a mile a minute. Just then, Neil spoke up: "Yessir! We plan to get the hell out of here, find a man named Trey, and apprehend him before he murders Zento, all the while keeping the dreadful secret that the moon landing was faked." 
 
-_Oh. No._ The cat was out of the bag. And no literal cats to save the day this time... Neil just screwed up real bad.
+_Oh. No._ The cat was out of the bag. And no literal cats to save the day this time... Neil just screwed up real bad. There would be hell to pay.
+
+5 minutes remaining
+-------------------
+
+Trey pulled himself out of the rubble, using only a straight edge, compass, and his bootstraps, and wondered what
+in the world just happened. He scanned the horizon for Zento, but she was nowhere to be found. How did she know he was coming, Trey wondered? And, how would he carry out the assassination with so little time left? Perhaps the most devastating aspect of the situation, Trey felt, was that he hadn't even used up his operational budget or daily meal stipend. _Carpe per diem_, he thought, hopelessly.
+
+Then, suddenly, a flicker of motion caught his eye. He turned and spotted Zento in the distance. Slowly but surely, Trey approached.
+
+Chapter 6
+----------
+
+When he heard the news, the customs agent did a double take. Once he had appropriated both Rowlend's and Neil's passports, he escorted them to the secondary checkpoint area. "I'll have to investigate you separately," the agent informed them.
+
+"That's preposterous," Neil objected. "Anything you can say in front of him you can say in front of me!"
+
+Despite his calm composure, Rowlend was quaking inside. He had been in trouble with the authorities before,
+and it had taken him one year and as many lawsuits to clear his name. How had Neil let this slip, he wondered? His comrade had a heart of gold and a brain of, at best, more gold. 
+
+Rowlend was led into an interrogation room. The officer followed him in and shut the door. 
+
+
+
+
+
+
+
+
+

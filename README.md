@@ -266,38 +266,38 @@ and it had taken him one year and as many lawsuits to clear his name. How had Ne
 
 Rowlend was led into an interrogation room. The officer followed him in and shut the door. "We will commence the investigation with lunch," the officer stated. The meal, distinctly a bruncheon by Rowlend's watch, commenced with a course of spit-roased Spitfire. While Rowlend was not a fan of eating airplane components, he did appreciate that it wasn't overcooked. Better done than well-done, he thought to himself.
 
-"I think I speak for myself when I say," the officer mumbled through a mouthful of PB&J, "investigations like this are my bread and butter." Aside from this worrying comment, the two were silent. Overall, Rowlend rated the experience as the worst meal of his life. The proof was in the pudding, which, like the main course, tasted like it was mostly made of metal and had been sitting around for several decades.
+"I think I speak for myself when I say," the officer mumbled through a mouthful of bread and butter, "Investigations like this are my bread and butter." Aside from this worrying comment, the two were silent. Overall, Rowlend rated the experience as the worst meal of his life. The proof was in the pudding, which, like the main course, tasted like it was mostly made of scrap metal and had been sitting around rusting for several decades.
 
-"Now, let's get down to business," the offer said, wiping crumbs from his face. Continuing with his good cop act, he poured a couple of emerald-green drinks.
+"Now, let's get down to business," the offer said, wiping crumbs from his face. He poured two tumblers of a mysterious emerald-green liquid.
 Absinthe makes the heart grow fonder, and he needed Rowlend to loosen up.
 
 Chapter 6b
 ----------
 
-Neil's investigation went in a different direction. Upon being served omelette, Neil had gone into a tailspin (coincidentally, the same one that felled Rowlend's Spitfire).
+Meanwhile, Neil's investigation had taken a different turn for the worse. Upon being served omelette, Neil had gone into a tailspin (coincidentally, the same one that felled Rowlend's Spitfire).
 
 "It's quite a predicament," Neil observed. "_What came first, the chicken or the omelette?_ On the one hand, the chicken produces the egg, which produces the omelette. But how could the chicken exist without the omelette?! Indeed, the omelette is needed to provide energy to its eater; the energy is consumed to browse social media, which is used to stimulate the growth of Silicon Valley tech companies, which in turn brings fortunes to their principals, stimulating the creation of their philanthropic organizations that support sustainable farming and ultimately enable the birth of the chicken. His head spun. Landing on the moon — what good had that done? He had missed his calling as a philosopher."
 
 The investigating officer declined to comment.
 
 
-2 minutes remaining
+1 minute remaining
 -------------------
 
-Trey approached Zento with due care. Once he was fairly near, he decided to beckon and call her over to where he was standing. "Trey," Zento shrieked, "We meet at least." At least she could have gotten her opening right, Trey thought.
+Trey approached Zento with overdue care per Zento's beckon and call. "Trey," Zento shrieked, "We meet at least." At least she could have gotten her opening right, Trey thought.
 
 "Trey," Zento continued, "You are a lost soul. Do not carry out this foul deed, for that is not who you are. Be true to yourself. Do not thrust upon yourself this..." and, here, she paused briefly. Then, she continued, "This... competence."
 
 "Do you think I'll be OK if I return without having assassinated you?" Trey asked.
 
-"Yes." She responded. In that moment, Trey felt, Zento's gleaming face was to her countenance as his visage was to his physiognomy. Astounded, he turned around and headed home. He didn't know how it would all turn out upon his disgraced return. _It's a wash whether it'll all come out in the wash_, Trey thought to himself, feeling an incredible calm descend upon him. But he knew one thing for sure: he had a lot of laundry to do.
+"Yes." She responded. In that moment, Trey felt, Zento's gleaming face was to her countenance as his visage was to his physiognomy. An incredible calm and clarity descended upon him. Astounded, he turned around and headed home. He didn't know how it would all turn out upon his disgraced return. _It's a wash whether it'll all come out in the wash_, Trey thought to himself. But he knew one thing for sure: he had a lot of laundry to do.
 
 Aftermath
 ---------
 
 After suffering several months of meaningless paperwork, unclear communication, and arbitrary abuses of power in the customs and immigration area, Neil and Rowlend realized that they weren't stuck at the entrance to Hell at all; rather, this _was_ Hell. They wished someone had thrown them in the loop about this earlier.
 
-Trey returned a hero, for unclear reasons. He decided to throw in a lot of towels with with an upcoming up and coming advocacy group called The Baby and the Bathwater. The group's purpose is best described as "None of the above".
+Trey returned a hero, for unclear reasons. He decided to throw in a lot of towels with with an upcoming up and coming advocacy group called The Baby and the Bathwater. The group's purpose is best described as, "None of the above".
 
 Sal and Jess met at the emergency meeting point, sorted out the moon landing situation, got married, and lived happily ever after. Despite having no prior experience with horses, husbandry suited Sal well. He wasn't even sure he understood the connection, given that Jess was decidedly human.
 

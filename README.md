@@ -22,7 +22,7 @@ Trey always knew how to make the most of a situation, to say the least. Today he
 Interlude
 -------------
 
-The poodle coagulated slowly. From the go-getter he was living on borrowed time, as the universe had intended him to be a puddle; his existence was just a cosmic typo. The poodle wasn't quite sure whether this was profound or mundane, but he didn't really care, especially on a Monday. One thing was for sure: the poodle needed a name. He grabbed the nearest book, which happened to be _Robinson Crusoe_,  opened it to a random page, and settled on the first name he saw. For Monday at 10am, Friday felt he had already accomplished a lot for the week.
+The poodle coagulated slowly. From the go-getter he was living on borrowed time, as the universe had intended him to be a puddle; his existence was just a cosmic typo. The poodle wasn't quite sure whether this was profound or mundane, but he didn't really care, especially on a Monday. One thing was for sure: the poodle needed a name. He grabbed the nearest book, which happened to be _Robinson Crusoe_,  opened it to a random page, and settled on the first name he saw. For Monday at 10am, Friday felt he had already accomplished a lot for the week. [[1]](https://en.wikipedia.org/wiki/Friday_(Robinson_Crusoe))
 
 Chapter 2
 -------------
@@ -37,7 +37,7 @@ Trey shuddered voluntarily. On top of dealing with Rowlend, the light was stream
 
 At this point Rowlend was questioning Trey's sanity more than he ever had, but he didn't allow himself to be distracted. "Here's the file," he said to Trey. "You have 48 hours to get this job done, or _you_ are done!" Rowlend wasn't one to beat around the burning bush.
 
-"I'm of two pieces of mind, sir," Trey replied casually. "On the one hand, that's a tough assignment, but on the other hand, it's time for me to prove my value to this department. I, Triple-O seven, accept your challenge with relish!"
+"I'm of two pieces of mind, sir," Trey replied casually. "On the one hand, that's a tough assignment, but on the other hand, it's time for me to prove my value to this department. I, Triple-O seven, accept your challenge with relish!" [[2]](https://www.whitespot.ca/secret-triple-o-sauce-recipe)
 
 But it was all a bluff. Trey didn't have any peace of mind at all. Not now. Not ever again until an integer overflow occurred on the cosmic clock and everything was nice and dandy again. But that was a long way away.
 
@@ -55,7 +55,7 @@ The file was self-contained within a yellowing folder marked _SECRETS WITHIN!_ i
 > - Minimum budget: $74,000
 > - Budget explanation: Three years ago, the agency was awarded an Emergency Measurements grant in response to the entire PR department taking vacation the same week. In order to have this grant renewed, we need to demonstrate our financial need by spending all of it. And yet, why spend more? Thus, the agent is directed to spend exactly $74,000 on the operation.
 > - Budget currency: Choice of Canadian, American, or Australian dollars left to discretion of the agent based on field conditions.
-> - Additional details: Saccharine Zento is an attourney whose services have been retained by Stingray Dental Corporate Corporation, Inc. to evaluate a potential acquisition of Blue Cellphones Retaining Walls Limited, by Stingray. Target believes the acquisition is based on unsound logic and seeks to prevent it. Stingray, a retainer manufacturer, has retained our services to ensure the acquisition proceeds as planned. Target was contacted by ACCENTUATE and demanded bribe of $75,000 to withdraw her objections. Bribe outside budgetary constraints.
+> - Additional details: Saccharine Zento is an attorney whose services have been retained by Stingray Dental Corporate Corporation, Inc. to evaluate a potential acquisition of Blue Cellphones Retaining Walls Limited, by Stingray. Target believes the acquisition is based on unsound logic and seeks to prevent it. Stingray, a retainer manufacturer, has retained our services to ensure the acquisition proceeds as planned. Target was contacted by ACCENTUATE and demanded bribe of $75,000 to withdraw her objections. Bribe outside budgetary constraints.
 
 It was a textbook case if Trey ever saw one. He put his textbook inside it and started to formulate a plan.
 
@@ -68,7 +68,7 @@ Trey opened his briefcase and glanced at the brief again. He did not wear briefs
 Chapter 4
 -----------
 
-Rowlend stumbled down the cobblestone path to his suburban home. The neighbour’s apple tree blocked the sun just right so that you couldn’t see his five o’clock shadow. As he entered, he was greeted with a smile -- for better or for worse -- by his better half, Trudi, whose yellow cardigan looked worse for wear. They sat down to dinner amidst the ringing of his antique biological clock, which Rowlend inherited from his grandfather. _BONG_, went the clock. _BONG_, _BONG_, _BONG_, _BONG_. And then, one final _BONGGGGG_. (Rowlend’s `pedantic Wall` did not quite understand why the clock was striking six, given that the length of Rowlend’s facial hair indicated it was more like five. Alas, the biological clock was not yet adjusted to the recent daylight savings time shift.)
+Rowlend stumbled down the cobblestone path to his suburban home. The neighbour’s apple tree blocked the sun just right so that you couldn’t see his five o’clock shadow. As he entered, he was greeted with a smile -- for better or for worse -- by his better half, Trudi, whose yellow cardigan looked worse for wear. They sat down to dinner amidst the ringing of his antique biological clock, which Rowlend inherited from his grandfather. _BONG_, went the clock. _BONG_, _BONG_, _BONG_, _BONG_. And then, one final _BONGGGGG_. (Rowlend’s `pedantic Wall` did not quite understand why the clock was striking six, given that the length of Rowlend’s facial hair indicated it was more like five. Alas, the biological clock was not yet adjusted to the recent daylight savings time shift.) [[3]](https://gcc.gnu.org/onlinedocs/gcc/Warning-Options.html)
 
 "How was your day today, agave dear?" Trudi asked. Needless to say, their household was sugar free.
 
@@ -82,10 +82,9 @@ Rowlend was not retired, nor did he like to draw.  He said as much to Trudi, whi
 
 When seen in a mirror, Trudi’s somewhat unusual response reflected the fact that, ostensibly, she had no idea what her husband really did. Murder _was_ illegal after all. So Rowlend had spun a web of lies regarding not only Trey, but his entire career. He now had to tread carefully on this web, which was by no means world-wide. One misstep and all the beans would be spilled. Which would be the last thing he needed, Rowlend thought, as he eyed his newly stained rug. What a mess.
 
-
 Later that evening, Rowlend met his comrade at arms length, Neil. Indeed, it’s a little-known fact that after venturing to the moon and back, Neil Armstrong joined ACCENTUATE, first in Business Development, Sales & Marketing and then, more recently, M&A. The timing had worked out perfectly, as ACCENTUATE needed a diversity hire and had no former astronauts among its ranks and files.
 
-Rowlend approached the shrouded figure of Neil, who had his headphones on. Rowlend tapped the chip on his shoulder. "Neil!" he whispered violently, a few droplets of spittle raining down on Neil’s parade. Neil started, startled. "Hey there, mate," said Neil. "I was just listening to my favorite song. You know, the one that goes, _I’ve got soul but I’m not soldier_..."
+Rowlend approached the shrouded figure of Neil, who had his headphones on. Rowlend tapped the chip on his shoulder. "Neil!" he whispered violently, a few droplets of spittle raining down on Neil’s parade. Neil started, startled. "Hey there, mate," said Neil. "I was just listening to my favorite song. You know, the one that goes, _I’ve got soul but I’m not soldier_..." [[4]](https://www.space.com/17307-neil-armstrong-one-small-step-quote.html)
 
 Rowlend didn’t have time for this nonsense. "Listen, Neil," Rowlend whispered urgently. "Trudi has been acting weird lately. She may be on to us. I’m getting worried."
 
@@ -177,7 +176,7 @@ At the destination
 
 At the specified location they found an abandoned hut. Outside the hut was a flagpole. On the flagpole was a pair of American flag underpants. They were clean. Rowlend sighed in relief and entered the hut using the security code provided in Neil's instructions. His predecessors had certainly gone to a lot of trouble to hide their deception.
 
-Within, they found 3 doors, each one with a live goat behind it. Rowlend was surprised. He figured that the probability of seeing such a thing here, on the moon and without water or an oxygen supply, could not be more than 1/3. Neil, a bumbling optimist, foolishly put the figure at 1/2.
+Within, they found 3 doors, each one with a live goat behind it. Rowlend was surprised. He figured that the probability of seeing such a thing here, on the moon and without water or an oxygen supply, could not be more than 1/3. Neil, a bumbling optimist, foolishly put the figure at 1/2. [[5]](https://en.wikipedia.org/wiki/Monty_Hall_problem)
 
 Aside from the doors, the room contained a large red button. Above the button was a sign with _WARNING: RED BUTTON BELOW_ written in large block letters. Rowlend pressed the button. After about 15 minutes, a hologram appeared. It took the shape of a middle-aged government official wearing a fairly tattered space suit. The hologram spoke:
 
@@ -228,7 +227,7 @@ Trey knew that assassination was a tricky business, but was not prepared for the
 
 Just then, someone leaned out of a lower window and dangled a long wooden stick in front of Trey's eyes. He looked up. Of all people in this enormous building, what were the chances? The dangling pointer belonged to none other than his target, Saccharine Zento herself. "Hello, Trey," she purred. "I've been expecting you."
 
-Trey was not expecting her to be expecting him, a fact that Zento was expecting despite not being pregnant. He did not know what his next move should be. But, then, out of the corner of his eye he saw an American flag. That's right, he was a basket case in the American breadbasket! That settled it. Alas, a measurement had been made. The building collapsed.
+Trey was not expecting her to be expecting him, a fact that Zento was expecting despite not being pregnant. He did not know what his next move should be. But, then, out of the corner of his eye he saw an American flag. That's right, he was a basket case in the American breadbasket! That settled it. Alas, a measurement had been made. The building collapsed. [[6]](https://en.wikipedia.org/wiki/Wave_function_collapse)
 
 Chapter 5
 ------------
@@ -237,7 +236,7 @@ Chapter 5
 
 After a few more minutes time-lapsed, Rowlend could start to see Hell through the handbasket’s large window (namely, the non-existent upper part). With such an eminent domain name, Rowlend assumed the place had many e-visitors, but that real actual tourists were more rare. And no wonder! It was a hell of a trip, and while the handbasket only had one class, Rowlend didn’t exactly think of it as first class. Exhausted, he turned around and took another look behind them. Having not been an astronaut in his previous life, unlike Neil, who, very much like Neil, had been an astronaut, Rowlend still marvelled at the vastness of outer space. The universe certainly contains more atoms than you can shake a stick at.
 
-The handbasket slowed to a halt, and then slowed further. Rowlend disembarked, and Neil alighted. Fortunately, neither of them ignited, despite their fears to the contrary (i.e. them igniting). Instead, they were directed through a series of walkways plastered with large advertisements for a foreign bank, with unhelpful messages such as _Hell is the underworld’s second largest exporter of pitchforks_ and _Heaven is no tax haven_ and _You can’t judge an open book by its cover_ and, perhaps most disturbingly, _If a stick has two short ends, eat a carrot_. Rowlend wished _he_ was plastered but, alas, he hadn’t been to Paris in ages.
+The handbasket slowed to a halt, and then slowed further. Rowlend disembarked, and Neil alighted. Fortunately, neither of them ignited, despite their fears to the contrary (i.e. them igniting). Instead, they were directed through a series of walkways plastered with large advertisements for a foreign bank, with unhelpful messages such as _Hell is the underworld’s second largest exporter of pitchforks_ and _Heaven is no tax haven_ and _You can’t judge an open book by its cover_ and, perhaps most disturbingly, _If a stick has two short ends, eat a carrot_. Rowlend wished _he_ was plastered but, alas, he hadn’t been to Paris in ages. [[7]](https://www.britannica.com/technology/plaster-of-paris)
 
 Eventually they were directed to the customs and immigration area. "Welcome to Hell," the agent spoke. "Do you have any intentions to declare?" Rowlend’s mouth dried up like a well. Should he declare them or not? He remained silent, but his heart was pounding a mile a minute. Just then, Neil spoke up: "Yessir! We plan to get the hell out of here, find a man named Trey, and apprehend him before he murders Zento, all the while keeping the dreadful secret that the moon landing was faked."
 
@@ -250,7 +249,7 @@ If he were dead, Rowlend would be rolling in his grave right now.
 -------------------
 
 Trey pulled himself out of the rubble and then fished his bootstraps out of the rubble as well. He wondered what
-in the world just happened. He scanned the horizon for Zento, but she was nowhere to be found. How did she know he was coming, Trey wondered? And, how would he carry out the assassination with so little time left? Perhaps the most devastating aspect of the situation, Trey felt, was that he hadn't even used up his operational budget or daily meal stipend. He has failed to live up to his personal motto, _Carpe per diem_.
+in the world just happened. He scanned the horizon for Zento, but she was nowhere to be found. How did she know he was coming, Trey wondered? And, how would he carry out the assassination with so little time left? Perhaps the most devastating aspect of the situation, Trey felt, was that he hadn't even used up his operational budget or daily meal stipend. He has failed to live up to his personal motto, _Carpe per diem_. [[8]](https://en.wikipedia.org/wiki/Per_diem)
 
 Then, suddenly, a flicker of motion caught his eye. He turned and spotted Zento in the distance. Slowly but surely, Trey approached.
 
@@ -309,4 +308,4 @@ Friday enjoyed standard poodle activities, like burying bones and frolicking.
        | | |  _  | |___  | |___| |\  | |_| |
        |_| |_| |_|_____| |_____|_| \_|____/
 
-PS... Bob's your uncle!
+PS... Bob's your uncle! [[9]](https://en.wikipedia.org/wiki/Bob%27s_your_uncle)

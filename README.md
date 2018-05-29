@@ -303,12 +303,10 @@ Sal and Jess met at the emergency meeting point, sorted out the moon landing sit
 
 Friday enjoyed standard poodle activities, like burying bones and frolicking.  
 
-
       _____ _   _ _____   _____ _   _ ____  
      |_   _| | | | ____| | ____| \ | |  _ \
        | | | |_| |  _|   |  _| |  \| | | | |
        | | |  _  | |___  | |___| |\  | |_| |
        |_| |_| |_|_____| |_____|_| \_|____/
-
 
 PS... Bob's your uncle!

@@ -11,11 +11,11 @@ Chapter 1
 
 "Boom!" said Trey, as he fired another one from his .44 magnum.  Another employee, that is. This is not to say Trey wasn't in the killing business, because he certainly was. But he also discharged his employees (with cause) using his gun, by pointing it at them and saying, "Boom". Ironically, Trey had actually never killed another person before, despite spending over 15 years in the M&A department at ACCENTUATE, a top-tier firm with no soft underbelly to speak of. This was quite surprising given that cold-blooded murder made up 50% of the mandate of ACCENTUATE's Murders & Acquisitions department.
 
-Trey always knew how to make the most of a situation, to say the least. Today he was looking into his expense reports for his past four missions, as he hadn't yet been paid back and he was late on his rent payments. The landlord had already made empty threats to evict him, and Trey was a glass half full kind of guy. He approached the finance office on the 14th floor of ACCENTUATE's downtown office. 
+Trey always knew how to make the most of a situation, to say the least. Today he was looking into his expense reports for his past four missions, as he hadn't yet been paid back and he was late on his rent payments. The landlord had already made empty threats to evict him, and Trey was a glass half full kind of guy. He approached the finance office on the 14th floor of ACCENTUATE's downtown office.
 
-"Hey Francis," Trey cooed, "where's my money for that botched job in Santiago?" (He had contracted botulism, and the target got away.) 
+"Hey Francis," Trey cooed, "where's my money for that botched job in Santiago?" (He had contracted botulism, and the target got away.)
 
-"Well," said Francis, "we need the receipts." 
+"Well," said Francis, "we need the receipts."
 
 "But I gave you the receipts last Wednesday. I even got an email acknowledging receipt of the receipts!" exclaimed Trey, his voice dripping with malice until a poodle formed on the floor beneath him. And then the bombshell hit: "I'm sorry, that's not my job. Please take your request to the Acknowledgements department on the 12th floor." Trey was _this close_ to quitting ACCENTUATE altogether, which explained the unusually short distance between his thumb and forefinger as he stormed out of Finance. But he had nowhere else to go. Who else even hires cereal killers, let alone complete failures thereof?
 
@@ -233,41 +233,82 @@ Trey was not expecting her to be expecting him, a fact that Zento was expecting 
 Chapter 5
 ------------
 
-"So," began Rowlend, "um, what exactly _is_ a handbasket? It seems worth knowing if we’re going to Hell in one." Neil, however, was not paying Rowlend any attention. Being now only a few kilometres away, they were already able to pick up Hell’s local radio station, and Neil was listening to a ball game between the home team, Bats out of Hell, and the visitors, Homerun’s Odyssey. With such a ridiculous names, Neil was surprised _anyone_ would go to bat for these teams, let alone the players. 
+"So," began Rowlend, "um, what exactly _is_ a handbasket? It seems worth knowing if we’re going to Hell in one." Neil, however, was not paying Rowlend any attention. Being now only a few kilometres away, they were already able to pick up Hell’s local radio station, and Neil was listening to a ball game between the home team, Bats out of Hell, and the visitors, Homerun’s Odyssey. With such a ridiculous names, Neil was surprised _anyone_ would go to bat for these teams, let alone the players.
 
 After a few more minutes time-lapsed, Rowlend could start to see Hell through the handbasket’s large window (namely, the non-existent upper part). With such an eminent domain name, Rowlend assumed the place had many e-visitors, but that real actual tourists were more rare. And no wonder! It was a hell of a trip, and while the handbasket only had one class, Rowlend didn’t exactly think of it as first class. Exhausted, he turned around and took another look behind them. Having not been an astronaut in his previous life, unlike Neil, who, very much like Neil, had been an astronaut, Rowlend still marvelled at the vastness of outer space. The universe certainly contains more atoms than you can shake a stick at.
 
-The handbasket slowed to a halt, and then slowed further. Rowlend disembarked, and Neil alighted. Fortunately, neither of them ignited, despite their fears to the contrary (i.e. them igniting). Instead, they were directed through a series of walkways plastered with large advertisements for a foreign bank, with unhelpful messages such as _Hell is the underworld’s second largest exporter of pitchforks_ and _Heaven is no tax haven_ and _You can’t judge an open book by its cover_ and, perhaps most disturbingly, _If a stick has two short ends, eat a carrot_. Rowlend wished _he_ was plastered but, alas, he hadn’t been to Paris in ages. 
+The handbasket slowed to a halt, and then slowed further. Rowlend disembarked, and Neil alighted. Fortunately, neither of them ignited, despite their fears to the contrary (i.e. them igniting). Instead, they were directed through a series of walkways plastered with large advertisements for a foreign bank, with unhelpful messages such as _Hell is the underworld’s second largest exporter of pitchforks_ and _Heaven is no tax haven_ and _You can’t judge an open book by its cover_ and, perhaps most disturbingly, _If a stick has two short ends, eat a carrot_. Rowlend wished _he_ was plastered but, alas, he hadn’t been to Paris in ages.
 
-Eventually they were directed to the customs and immigration area. "Welcome to Hell," the agent spoke. "Do you have any intentions to declare?" Rowlend’s mouth dried up like a well. Should he declare them or not? He remained silent, but his heart was pounding a mile a minute. Just then, Neil spoke up: "Yessir! We plan to get the hell out of here, find a man named Trey, and apprehend him before he murders Zento, all the while keeping the dreadful secret that the moon landing was faked." 
+Eventually they were directed to the customs and immigration area. "Welcome to Hell," the agent spoke. "Do you have any intentions to declare?" Rowlend’s mouth dried up like a well. Should he declare them or not? He remained silent, but his heart was pounding a mile a minute. Just then, Neil spoke up: "Yessir! We plan to get the hell out of here, find a man named Trey, and apprehend him before he murders Zento, all the while keeping the dreadful secret that the moon landing was faked."
 
-_Oh. No._ The cat was out of the bag. And no literal cats to save the day this time... Neil just screwed up real bad. There would be hell to pay.
+_Oh. No._ The cat was out of the bag. The beans were spilled. Neil had spoken too fast, and there would be hell to pay.
+
+If he were dead, Rowlend would be rolling in his grave right now.
+
 
 5 minutes remaining
 -------------------
 
-Trey pulled himself out of the rubble, using only a straight edge, compass, and his bootstraps, and wondered what
-in the world just happened. He scanned the horizon for Zento, but she was nowhere to be found. How did she know he was coming, Trey wondered? And, how would he carry out the assassination with so little time left? Perhaps the most devastating aspect of the situation, Trey felt, was that he hadn't even used up his operational budget or daily meal stipend. _Carpe per diem_, he thought, hopelessly.
+Trey pulled himself out of the rubble and then fished his bootstraps out of the rubble as well. He wondered what
+in the world just happened. He scanned the horizon for Zento, but she was nowhere to be found. How did she know he was coming, Trey wondered? And, how would he carry out the assassination with so little time left? Perhaps the most devastating aspect of the situation, Trey felt, was that he hadn't even used up his operational budget or daily meal stipend. He has failed to live up to his personal motto, _Carpe per diem_.
 
 Then, suddenly, a flicker of motion caught his eye. He turned and spotted Zento in the distance. Slowly but surely, Trey approached.
 
 Chapter 6
 ----------
 
-When he heard the news, the customs agent did a double take. Once he had appropriated both Rowlend's and Neil's passports, he escorted them to the secondary checkpoint area. "I'll have to investigate you separately," the agent informed them.
+When he heard the news, the single customs agent did a double take. (Whether the agent is single in the sense of being unattached, or in the sense of not being a double-agent, is left as an exercise to the reader.) Once he had appropriated both Rowlend's and Neil's passports, he escorted them to the secondary checkpoint area. "I'll have to investigate you separately," the agent informed them.
 
 "That's preposterous," Neil objected. "Anything you can say in front of him you can say in front of me!"
 
 Despite his calm composure, Rowlend was quaking inside. He had been in trouble with the authorities before,
-and it had taken him one year and as many lawsuits to clear his name. How had Neil let this slip, he wondered? His comrade had a heart of gold and a brain of, at best, more gold. 
+and it had taken him one year and as many lawsuits to clear his name. How had Neil let this slip, he wondered? His comrade had a heart of gold but a brain of... platinum? Not neurons, to be sure.
 
-Rowlend was led into an interrogation room. The officer followed him in and shut the door. 
+Rowlend was led into an interrogation room. The officer followed him in and shut the door. "We will commence the investigation with lunch," the officer stated. The meal, distinctly a bruncheon by Rowlend's watch, commenced with a course of spit-roased Spitfire. While Rowlend was not a fan of eating airplane components, he did appreciate that it wasn't overcooked. Better done than well-done, he thought to himself.
+
+"I think I speak for myself when I say," the officer mumbled through a mouthful of PB&J, "investigations like this are my bread and butter." Aside from this worrying comment, the two were silent. Overall, Rowlend rated the experience as the worst meal of his life. The proof was in the pudding, which, like the main course, tasted like it was mostly made of metal and had been sitting around for several decades.
+
+"Now, let's get down to business," the offer said, wiping crumbs from his face. Continuing with his good cop act, he poured a couple of emerald-green drinks.
+Absinthe makes the heart grow fonder, and he needed Rowlend to loosen up.
+
+Chapter 6b
+----------
+
+Neil's investigation went in a different direction. Upon being served omelette, Neil had gone into a tailspin (coincidentally, the same one that felled Rowlend's Spitfire).
+
+"It's quite a predicament," Neil observed. "_What came first, the chicken or the omelette?_ On the one hand, the chicken produces the egg, which produces the omelette. But how could the chicken exist without the omelette?! Indeed, the omelette is needed to provide energy to its eater; the energy is consumed to browse social media, which is used to stimulate the growth of Silicon Valley tech companies, which in turn brings fortunes to their principals, stimulating the creation of their philanthropic organizations that support sustainable farming and ultimately enable the birth of the chicken. His head spun. Landing on the moon — what good had that done? He had missed his calling as a philosopher."
+
+The investigating officer declined to comment.
 
 
+2 minutes remaining
+-------------------
+
+Trey approached Zento with due care. Once he was fairly near, he decided to beckon and call her over to where he was standing. "Trey," Zento shrieked, "We meet at least." At least she could have gotten her opening right, Trey thought.
+
+"Trey," Zento continued, "You are a lost soul. Do not carry out this foul deed, for that is not who you are. Be true to yourself. Do not thrust upon yourself this..." and, here, she paused briefly. Then, she continued, "This... competence."
+
+"Do you think I'll be OK if I return without having assassinated you?" Trey asked.
+
+"Yes." She responded. In that moment, Trey felt, Zento's gleaming face was to her countenance as his visage was to his physiognomy. Astounded, he turned around and headed home. He didn't know how it would all turn out upon his disgraced return. _It's a wash whether it'll all come out in the wash_, Trey thought to himself, feeling an incredible calm descend upon him. But he knew one thing for sure: he had a lot of laundry to do.
+
+Aftermath
+---------
+
+After suffering several months of meaningless paperwork, unclear communication, and arbitrary abuses of power in the customs and immigration area, Neil and Rowlend realized that they weren't stuck at the entrance to Hell at all; rather, this _was_ Hell. They wished someone had thrown them in the loop about this earlier.
+
+Trey returned a hero, for unclear reasons. He decided to throw in a lot of towels with with an upcoming up and coming advocacy group called The Baby and the Bathwater. The group's purpose is best described as "None of the above".
+
+Sal and Jess met at the emergency meeting point, sorted out the moon landing situation, got married, and lived happily ever after. Despite having no prior experience with horses, husbandry suited Sal well. He wasn't even sure he understood the connection, given that Jess was decidedly human.
+
+Friday enjoyed standard poodle activities, like burying bones and frolicking.  
 
 
+      _____ _   _ _____   _____ _   _ ____  
+     |_   _| | | | ____| | ____| \ | |  _ \
+       | | | |_| |  _|   |  _| |  \| | | | |
+       | | |  _  | |___  | |___| |\  | |_| |
+       |_| |_| |_|_____| |_____|_| \_|____/
 
 
-
-
-
+PS... Bob's your uncle!

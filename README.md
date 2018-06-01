@@ -294,13 +294,13 @@ Trey approached Zento with overdue care per Zento's beckon and call. "Trey," Zen
 Afterwords
 ----------
 
-After suffering several months of meaningless paperwork, unclear communication, and arbitrary abuses of power in the customs and immigration area, Neil and Rowlend realized that they weren't stuck at the entrance to Hell at all; rather, this _was_ Hell. They wished someone had thrown them in the loop about this earlier.
-
 Trey returned a hero, for unclear reasons. He decided to throw in a lot of towels with an upcoming up and coming advocacy group called The Baby and the Bathwater. The group's mission is best described as, "None of the above".
+
+After suffering several months of meaningless paperwork, unclear communication, and arbitrary abuses of power in the customs and immigration area, Neil and Rowlend realized that they weren't stuck at the entrance to Hell at all; rather, this _was_ Hell. They wished someone had thrown them in the loop about this earlier.
 
 Sal and Jess met at the emergency meeting point, sorted out the moon landing situation, got married, and lived happily ever after. Despite having no prior experience with horses, husbandry suited Sal well. He wasn't even sure he understood the connection, given that Jess was decidedly human.
 
-Friday enjoyed standard poodle activities, like burying bones and frolicking.  
+Friday enjoyed standard poodle activities, like burying bones and frolicking in the sun.
 
       _____ _   _ _____   _____ _   _ ____  
      |_   _| | | | ____| | ____| \ | |  _ \

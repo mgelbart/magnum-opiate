@@ -287,12 +287,12 @@ Trey approached Zento with overdue care per Zento's beckon and call. "Trey," Zen
 
 "Trey," Zento continued, "You are a lost soul. Do not carry out this foul deed, for that is not who you are. Be true to yourself. Do not thrust upon yourself this..." and, here, she paused briefly. Then, she continued, "This... competence."
 
-"Do you think I'll be OK if I return without having assassinated you?" Trey asked.
+"I'm worried about returning home without having assassinated you. Do you think it'll all come out in the wash?" Trey asked.
 
-"Yes." She responded. In that moment, Trey felt, Zento's gleaming face was to her countenance as his visage was to his physiognomy. An incredible calm and clarity descended upon him. Astounded, he turned around and headed home. He didn't know how it would all turn out upon his disgraced return. _It's a wash whether it'll all come out in the wash_, Trey thought to himself. But he knew one thing for sure: he had a lot of laundry to do.
+"It's a wash," she responded. In that moment, Trey felt, Zento's gleaming face was to her countenance as his visage was to his physiognomy. An incredible calm and clarity descended upon him. Astounded, he turned around and headed home. He didn't know how it would all turn out, but he knew one thing for sure: he had a lot of laundry to do.
 
-Aftermath
----------
+Afterwords
+----------
 
 After suffering several months of meaningless paperwork, unclear communication, and arbitrary abuses of power in the customs and immigration area, Neil and Rowlend realized that they weren't stuck at the entrance to Hell at all; rather, this _was_ Hell. They wished someone had thrown them in the loop about this earlier.
 

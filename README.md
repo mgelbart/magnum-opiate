@@ -27,7 +27,7 @@ The poodle coagulated slowly. From the go-getter he was living on borrowed time,
 Chapter 2
 -------------
 
-"Excuse me," Trey said, clearing his throat phlegmatically. He had made it down to the 12th floor, no thanks to gravity which, it appeared, did not apply to slow-moving elevators. But before Trey could even engage in a discusion about the receipt of the receipts, and his receipt thereof, he was accosted by his supervisor, Mr. Rowland T. "Rowlend" Harrison III. Unfortunately, Rowlend knew how to strike the iron while it's hot, and wasn't going to let Trey off the hook, line, or sinker this time. "Agent Triple-O Seven," said Rowlend, "I don't know what your secret sauce is, but you haven't eliminated a single target in 15 years. I'm fed up. This is your last chance!"
+"Excuse me," Trey said, clearing his throat phlegmatically. He had made it down to the 12th floor, no thanks to gravity which, it appeared, did not apply to slow-moving elevators. But before Trey could even engage in a discussion about the receipt of the receipts, and his receipt thereof, he was accosted by his supervisor, Mr. Rowland T. "Rowlend" Harrison III. Unfortunately, Rowlend knew how to strike the iron while it's hot, and wasn't going to let Trey off the hook, line, or sinker this time. "Agent Triple-O Seven," said Rowlend, "I don't know what your secret sauce is, but you haven't eliminated a single target in 15 years. I'm fed up. This is your last chance!"
 
 Trey shuddered voluntarily. On top of dealing with Rowlend, the light was streaming in the windows 3.1 times more than his eyes could really handle. "I know 'em when I see 'em," mused Trey.
 
@@ -72,7 +72,7 @@ Rowlend stumbled down the cobblestone path to his suburban home. The neighbour�
 
 "How was your day today, agave dear?" Trudi asked. Needless to say, their household was sugar free.
 
-Rowlend tried to snort and sigh at the same time. Unfortunately, he did not suceed in either endeavour. The room filled with an oppressive silence, which was only broken several minutes later by the shattering of Rowlend’s wine glass. Determination of the number of shards of glass, their shapes and sizes, and the rate of absorption of Rowlend’s full-bodied crimson wine into the rug are left as exercises to the reader. Words do not suffice it to say, Rowland had had a bad, bad day.
+Rowlend tried to snort and sigh at the same time. Unfortunately, he did not succeed in either endeavour. The room filled with an oppressive silence, which was only broken several minutes later by the shattering of Rowlend’s wine glass. Determination of the number of shards of glass, their shapes and sizes, and the rate of absorption of Rowlend’s full-bodied crimson wine into the rug are left as exercises to the reader. Words do not suffice it to say, Rowlend had had a bad, bad day.
 
 Upon retiring to the drawing room
 -----------------------------------------
@@ -84,13 +84,13 @@ When seen in a mirror, Trudi’s somewhat unusual response reflected the fact th
 
 Later that evening, Rowlend met his comrade at arms length, Neil. Indeed, it’s a little-known fact that after venturing to the moon and back, Neil Armstrong joined ACCENTUATE, first in Business Development, Sales & Marketing and then, more recently, M&A. The timing had worked out perfectly, as ACCENTUATE needed a diversity hire and had no former astronauts among its ranks and files.
 
-Rowlend approached the shrouded figure of Neil, who had his headphones on. Rowlend tapped the chip on his shoulder. "Neil!" he whispered violently, a few droplets of spittle raining down on Neil’s parade. Neil started, startled. "Hey there, mate," said Neil. "I was just listening to my favorite song. You know, the one that goes, _I’ve got soul but I’m not soldier_..." [[4]](https://www.space.com/17307-neil-armstrong-one-small-step-quote.html)
+Rowlend approached the shrouded figure of Neil, who had his headphones on. Rowlend tapped the chip on his shoulder. "Neil!" he whispered violently, a few droplets of spittle raining down on Neil’s parade. Neil started, startled. "Hey there, mate," said Neil. "I was just listening to my favourite song. You know, the one that goes, _I’ve got soul but I’m not soldier_..." [[4]](https://www.space.com/17307-neil-armstrong-one-small-step-quote.html)
 
 Rowlend didn’t have time for this nonsense. "Listen, Neil," Rowlend whispered urgently. "Trudi has been acting weird lately. She may be on to us. I’m getting worried."
 
 "What did she say?"  
 
-"Something about _Jeopardy!_" Rowlend replied. "Inserted a little awkwardly into a sentence, too. Maybe it’s a message. You know, one of those association things like… _Jeopardy!_… Alex Trebek… Alexander… Alexander the Great… Great… Greater… Grater… Cheese Grater… Sharp Cheddar… Cheeseburger… Double Cheseburger… Meat… Slaughterhouse… Blades… and, finally… Punishment. Neil, I don’t want to be punished for what I’ve done. For what _we’ve_ done."
+"Something about _Jeopardy!_" Rowlend replied. "Inserted a little awkwardly into a sentence, too. Maybe it’s a message. You know, one of those association things like… _Jeopardy!_… Alex Trebek... Alexander... Alexander the Great... Great... Greater... Grater... Cheese Grater... Sharp Cheddar... Cheeseburger... Double Cheeseburger... Meat... Slaughterhouse... Blades... and, finally... Punishment. Neil, I don’t want to be punished for what I’ve done. For what _we’ve_ done."
 
 Neil pondered this new tidbit of information. While these were accusations he would take to his grave, he wasn’t sure whether he could trust Rowlend’s account of what Trudi had said. It was a classic he-said-she-said.
 
@@ -217,7 +217,7 @@ That is, all was well until his moon alarm clock rang. This had happened before,
 17 minutes remaining
 --------------------------
 
-Trey pulled up in the parking lot of Stringray Dental and was poised to carry out this foul deed. The timing could not have been worse, as his nasal drip had just started acting up again. He really looked forward to life post–nasal drip, should that day ever come. He stepped out of his car and slammed the door shut. Trey was not one to come between a car's door and its chassis, so the experience was relatively painless.
+Trey pulled up in the parking lot of Stingray Dental and was poised to carry out this foul deed. The timing could not have been worse, as his nasal drip had just started acting up again. He really looked forward to life post–nasal drip, should that day ever come. He stepped out of his car and slammed the door shut. Trey was not one to come between a car's door and its chassis, so the experience was relatively painless.
 
 He approached the building. Near the entrance was a placard that read, "Funding for this building was generously provided by anonymous donor Stewart D. Baker. At the time of construction, this was both the tallest and newest building in a 100-mile radius." As always, Trey was disgusted by the use of the imperial measurement system, but otherwise found the information quite interesting. He pushed the door. It did not open. He pulled the door. It did not open. He simultaneously pushed and pulled the door. It did not open. The door was locked.
 
@@ -263,7 +263,7 @@ When he heard the news, the single customs agent did a double take. (Whether the
 Despite his calm composure, Rowlend was quaking inside. He had been in trouble with the authorities before,
 and it had taken him one year and as many lawsuits to clear his name. How had Neil let this slip, he wondered? His comrade had a heart of gold but a brain of... platinum? Not neurons, to be sure.
 
-Rowlend was led into an interrogation room. The officer followed him in and shut the door. "We will commence the investigation with lunch," the officer stated. The meal, distinctly a bruncheon by Rowlend's watch, commenced with a course of spit-roased Spitfire. While Rowlend was not a fan of eating airplane components, he did appreciate that it wasn't overcooked. Better done than well-done, he thought to himself.
+Rowlend was led into an interrogation room. The officer followed him in and shut the door. "We will commence the investigation with lunch," the officer stated. The meal, distinctly a bruncheon by Rowlend's watch, commenced with a course of spit-roasted Spitfire. While Rowlend was not a fan of eating airplane components, he did appreciate that it wasn't overcooked. Better done than well-done, he thought to himself.
 
 "I think I speak for myself when I say," the officer mumbled through a mouthful of bread and butter, "Investigations like this are my bread and butter." Aside from this worrying comment, the two were silent. Overall, Rowlend rated the experience as the worst meal of his life. The proof was in the pudding, which, like the main course, tasted like it was mostly made of scrap metal and had been sitting around rusting for several decades.
 

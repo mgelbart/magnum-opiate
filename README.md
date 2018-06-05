@@ -163,13 +163,13 @@ As mentioned above, but not too far above, this call did not impact Rowlend's li
 Further exploration of the moonscape
 ----------------------------------------------
 
-Neil was responsible for navigation from their moon landing site to the location of the buried documents. It was with this responsibility weighing down his head, shoulders and camel's back that he asked Neil the following question: "Rowlend," he asked, "I have some good news and some bad news. Which would you like to hear first?"
+Neil was responsible for navigation from their moon landing site to the location of the buried documents. It was with this responsibility weighing down his head, shoulders and camel's back that he asked Rowlend the following question: "Rowlend," he asked, "Shall we take my way, or the highway?"
 
-"Well," answered Rowlend, whose microphone was now enabled, "The good news, please."
+Rowlend pondered this for about five moon-minutes, which are like regular minutes except that they typically consume much more taxpayer money in order to experience. It was a tough decision. "I'm not sure," Rowlend replied. "It's a dime of one, half a dozen of the other." 
 
-"The good news is that there is no bad news," replied Neil.
+In the end, they took the highway. It took a toll on them, as they feared, but it ended up only being a few dollars.
 
-Rowlend pondered this for about five moon-minutes, which are like regular minutes except that they typically consume much more taxpayer money in order to experience. Rowlend eventually surmised that the purportedly non-existent bad news, had he asked to hear it first, would not have been so bad after all. He relaxed and moved on. A fortenight later, they reached their destination. (_Fortenight_ is Italian for forteen very loud nights. The noise was due, primarily, to boisterous soirées that the locals held on the moon's surface. Rowlend was glad he had purchased third party liability insurance, as he had accidentally deactivated the spacesuit of a partygoer at the third such event they encountered.)
+A fortenight later, they reached their destination. (_Fortenight_ is Italian for forteen very loud nights. The noise was due, primarily, to boisterous soirées that the locals held on the moon's surface. Rowlend was glad he had purchased third party liability insurance, as he had accidentally deactivated the spacesuit of a partygoer at the third such event they encountered.)
 
 At the destination
 ---------------------

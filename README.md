@@ -168,7 +168,6 @@ Neil was responsible for navigation from their moon landing site to the location
 Rowlend pondered this for about five moon-minutes, which are like regular minutes except that they typically consume much more taxpayer money in order to experience. It was a tough decision. "I'm not sure," Rowlend replied. "It's a dime of one, half a dozen of the other." 
 
 In the end, they took the highway. It took a toll on them, as they feared, but it ended up only being a few dollars.
-
 A fortenight later, they reached their destination. (_Fortenight_ is Italian for forteen very loud nights. The noise was due, primarily, to boisterous soirées that the locals held on the moon's surface. Rowlend was glad he had purchased third party liability insurance, as he had accidentally deactivated the spacesuit of a partygoer at the third such event they encountered.)
 
 At the destination

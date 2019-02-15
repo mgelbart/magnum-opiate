@@ -76,7 +76,7 @@ Rowlend tried to snort and sigh at the same time. Unfortunately, he did not succ
 
 Upon retiring to the drawing room
 -----------------------------------------
-Rowlend was not retired, nor did he like to draw.  He said as much to Trudi, which surprised her, as he often said little. "It’s that Trey character again... he is driving me off the wall," he exclaimed!
+Rowlend was not retired, nor did he like to draw. But he was getting too old to find his nail clippers, which had left him long in the tooth and nail. He said as much to Trudi, which surprised her, as he often said little. "It’s that Trey character again... he is driving me off the wall," he exclaimed!
 
 "Don’t let him get to you," Trudi replied sympathetically. "Is his odour bothering you again? If he’s not careful, his career could be on Jeopardy! Imagine if nobody can stand standing near him. As I always say," she continued, "success is 1% inspiration, 99% antiperspirant."
 
@@ -185,7 +185,7 @@ Another 15 minutes passed. The voice continued:
 
 "The entire moon landing was faked. We began filming in March 1969 in a Hollywood studio. We were held up briefly by the screenwriters guild but eventually were able to proceed. Filming took 7 days and 7 nights. Real moon rock was used to make the scene look more realistic.
 
-This information is to be safeguarded at all costs. By the time this recording is watched, I will probably be long in the tooth and nail. By the way, please watch out for agent Triple-O Seven. Goodbye."
+This information is to be safeguarded at all costs. By the way, please watch out for agent Triple-O Seven. Goodbye."
 
 To say that Rowlend's reaction was understated would not be an understatement because, alas, it would be completely false. Rowlend was shocked to his core. He couldn't believe it. The moon landing was faked! This was the greatest discovery since Sir Isaac Newton realized the apple doesn't fall far from the tree.
 

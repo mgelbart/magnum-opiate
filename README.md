@@ -27,7 +27,7 @@ The poodle coagulated slowly. From the go-getter he was living on borrowed time,
 Chapter 2
 -------------
 
-"Excuse me," Trey said, clearing his throat phlegmatically. He had made it down to the 12th floor, no thanks to gravity which, it appeared, did not apply to slow-moving elevators. But before Trey could even engage in a discussion about the receipt of the receipts, and his receipt thereof, he was accosted by his supervisor, Mr. Rowland T. "Rowlend" Harrison III. Unfortunately, Rowlend knew how to strike the iron while it's hot, and wasn't going to let Trey off the hook, line, or sinker this time. "Agent Triple-O Seven," said Rowlend, "I don't know what your secret sauce is, but you haven't eliminated a single target in 15 years. I'm fed up. This is your last chance!"
+"Excuse me," Trey said, clearing his throat phlegmatically. He had made it down to the 12th floor, no thanks to gravity which, it appeared, did not apply to slow-moving elevators. But before Trey could even engage in a discussion about the receipt of the receipts, and his receipt thereof, he was accosted by his supervisor, Mr. Rowland T. "Rowlend" Harrison III. Unfortunately, Rowlend knew how to strike the iron while it's hot, and wasn't going to let Trey off the hook, line, or sinker this time. "Agent Triple-O Seven," said Rowlend, "I don't know what your secret sauce is, but you haven't eliminated a single target in 15 years. I'm fed up. This is your last chance!" [[2]](https://www.whitespot.ca/secret-triple-o-sauce-recipe)
 
 Trey shuddered voluntarily. On top of dealing with Rowlend, the light was streaming in the windows 3.1 times more than his eyes could really handle. "I know 'em when I see 'em," mused Trey.
 
@@ -37,7 +37,7 @@ Trey shuddered voluntarily. On top of dealing with Rowlend, the light was stream
 
 At this point Rowlend was questioning Trey's sanity more than he ever had, but he didn't allow himself to be distracted. "Here's the file," he said to Trey. "You have 48 hours to get this job done, or _you_ are done!" Rowlend wasn't one to beat around the burning bush.
 
-"I'm of two pieces of mind, sir," Trey replied casually. "On the one hand, that's a tough assignment, but on the other hand, it's time for me to prove my value to this department. I, Triple-O seven, accept your challenge with relish!" [[2]](https://www.whitespot.ca/secret-triple-o-sauce-recipe)
+"I'm of two pieces of mind, sir," Trey replied casually. "On the one hand, that's a tough assignment, but on the other hand, it's time for me to prove my value to this department. I, Triple-O seven, accept your challenge with relish!" 
 
 But it was all a bluff. Trey didn't have any peace of mind at all. Not now. Not ever again until an integer overflow occurred on the cosmic clock and everything was nice and dandy again. But that was a long way away.
 

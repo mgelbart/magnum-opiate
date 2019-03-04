@@ -266,7 +266,7 @@ Rowlend was led into an interrogation room. The officer followed him in and shut
 
 "I think I speak for myself when I say," the officer mumbled through a mouthful of bread and butter, "Investigations like this are my bread and butter." Aside from this worrying comment, the two were silent. Overall, Rowlend rated the experience as the worst meal of his life. The proof was in the pudding, which, like the main course, tasted like it was mostly made of scrap metal and had been sitting around rusting for several decades.
 
-"Now, let's get down to business," the offer said, wiping crumbs from his face. He poured two tumblers of a mysterious emerald-green liquid.
+"Now, let's get down to business," the officer said, wiping crumbs from his face. He poured two tumblers of a mysterious emerald-green liquid.
 Absinthe makes the heart grow fonder, and he needed Rowlend to loosen up.
 
 Chapter 6b

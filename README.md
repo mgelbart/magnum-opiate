@@ -96,7 +96,7 @@ Neil pondered this new tidbit of information. While these were accusations he wo
 
 Just then, an image of the Earth, proud and beautiful, filled his eye’s mind of its own. Neil knew what he had to do. He donned his space suit, and then doffed it. Then he donned it again. He always knew the moment might eventually come. They needed to recover the documents before it was too late.†
 
-A few days’ preparation later, they were lunched and launched. Rowlend, looked around him. His jaw dropped, but it did not hit the floor. Nor could it, for there was no floor beneath them… just the unimaginable vastness of outer space. As someone with an outie, Rowlend always suspected this day would come, even if he had to wait light years for it. He hoped the galaxy was ready for Rowland T. Harrison III.
+A few days’ preparation later, they were lunched and launched. Rowlend looked around him. His jaw dropped, but it did not hit the floor. Nor could it, for there was no floor beneath them… just the unimaginable vastness of outer space. As someone with an outie, Rowlend always suspected this day would come, even if he had to wait light years for it. He hoped the galaxy was ready for Rowland T. Harrison III.
 
 †The documents in question, in case the reader would like to know, contain definitive proof that the United States moon landing was indeed faked, as some conspiracy theorists contend. The documents were buried in the safest place known to man at that time. Neil and Rowlend were on their way to the moon to recover the documents and destroy them, once and for all.
 

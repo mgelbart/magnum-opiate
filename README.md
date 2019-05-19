@@ -282,9 +282,9 @@ The investigating officer declined to comment.
 1 minute remaining
 -------------------
 
-Trey approached Zento with overdue care per Zento's beckon and call. "Trey," Zento shrieked, "We meet at least." At least she could have gotten her opening right, Trey thought.
+Trey approached Zento with overdue care per Zento's beckon and call. "Trey," Zento shrieked, "We meet at least." At least she could have gotten her opening right, Trey thought. Without further adieu, Trey pointed his weapon and Zento and asked, "Any famous last words?"
 
-"Trey," Zento continued, "You are a lost soul. Do not carry out this foul deed, for that is not who you are. Be true to yourself. Do not thrust upon yourself this..." and, here, she paused briefly. Then, she continued, "This... competence."
+Zento looked at Trey and spoke calmly: "Trey, you are a lost soul. Do not carry out this foul deed, for that is not who you are. Be true to yourself. Do not thrust upon yourself this..." and, here, she paused briefly. Then, she continued, "This... competence."
 
 "I'm worried about returning home without having assassinated you. Do you think it'll all come out in the wash?" Trey asked.
 

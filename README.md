@@ -228,6 +228,8 @@ Just then, someone leaned out of a lower window and dangled a long wooden stick 
 
 Trey was not expecting her to be expecting him, a fact that Zento was expecting despite not being pregnant. He did not know what his next move should be. But, then, out of the corner of his eye he saw an American flag. That's right, he was a basket case in the American breadbasket! That settled it. Alas, a measurement had been made. The building collapsed. [[6]](https://en.wikipedia.org/wiki/Wave_function_collapse)
 
+_Assassination is a three-step process_, Trey thought to himself. _Two steps forward, one step back._
+
 Chapter 5
 ------------
 

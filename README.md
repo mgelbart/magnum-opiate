@@ -135,7 +135,9 @@ Trey was born ready to order. Nonetheless, he asked about the specials.
 
 The server obliged: "On special today we have a consommé. The marriage of flavours creates a wonderful effect. We also have onion rings on special for $2 a ring."
 
-Erring on the side of caution (the consommé was in fact excellent), Trey ordered the club sandwich. It was the bees' niece. But he now had very little time left to carry out his mission. For all intensive purposes, such as carrying out an assassination on short notice, Trey was decidedly incompetent. Or so it seemed to literally everyone including the author and, presumably, the reader.
+Erring on the side of caution (the consommé was in fact excellent), Trey ordered the fish and chips. The fish tasted a little off, but luckily he didn’t get food poissoning. For dessert, Trey ordered a baklava. It was the bees' niece. 
+
+Lunch was a success, but Trey now had very little time left to carry out his mission. For all intensive purposes, such as carrying out an assassination on short notice, Trey was decidedly incompetent. Or so it seemed to literally everyone including the author and, presumably, the reader.
 
 Clarification
 ---------------
@@ -165,7 +167,9 @@ Further exploration of the moonscape
 
 Neil was responsible for navigation from their moon landing site to the location of the buried documents. It was with this responsibility weighing down his head, shoulders and camel's back that he asked Rowlend the following question: "Rowlend," he asked, "Shall we take my way, or the highway?"
 
-Rowlend pondered this for about five moon-minutes, which are like regular minutes except that they typically consume much more taxpayer money in order to experience. It was a tough decision. "I'm not sure," Rowlend replied. "It's a dime of one, half a dozen of the other." 
+It was a tough decision. "I'm not sure," Rowlend replied. "It's a dime of one, half a dozen of the other." 
+
+Neil pondered this for about five moon-minutes, which are like regular minutes except that they typically consume much more taxpayer money in order to experience. Like the S&P 500, Neil was not very quick on the uptick.
 
 In the end, they took the highway. It took a toll on them, as they feared, but it ended up only being a few dollars.
 A fortenight later, they reached their destination. (_Fortenight_ is Italian for forteen very loud nights. The noise was due, primarily, to boisterous soirées that the locals held on the moon's surface. Rowlend was glad he had purchased third party liability insurance, as he had accidentally deactivated the spacesuit of a partygoer at the third such event they encountered.)

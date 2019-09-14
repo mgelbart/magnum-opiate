@@ -118,7 +118,7 @@ Rowlend opened the snack packed by his loving family: heirloom tomatoes, zucchin
 
 Rowlend and Neil arrived safely on the moon without getting hitched. They parked the _Desiderata_ near the pointy part of the crescent, but not right at the point itself which would have posed a risk of puncturing the vessel. Rowlend’s first few steps on the moon were exhilarating. He now understood how Michael Jackson would have felt, had he ever been on the moon. "This is wonderful!" exclaimed Rowlend. "I feel so _light_, so _free_, as if all my worries were left on Earth. There is nobody here, Neil! The moon is my Oyster card." He glanced over at his partner-in-crime, who was taking a step or two himself. "Now now there, Neil, mind the gap between those two craters. Wouldn’t want you falling. Oh, Neil, I’m so glad you brought me here. I feel wonderful! I feel like… like all these atoms joined forces in this totally improbable way to form _me_, Rowlend, just so I could enjoy this one moment of lunar bliss." Some would say Rowlend had entered the territory known as rambling. He continued: "Oh, Neil! Allow me to compose a sonnet, Neil, to commemorate this moment—"
 
-At this moment, though, something other than a sonnet reading transpired. Neil gave Rowlend a significant look and tapped his spacesuit. They hadn’t turned on the radios yet. Neil hoped Rowlend hadn’t said anything of import.
+At this moment, though, something other than a sonnet reading transpired. Neil gave Rowlend a significant look and tapped his spacesuit. They hadn’t turned on the radios yet. Neil hoped Rowlend hadn’t said anything of import/export.
 
 Then, something else happened: Rowlend’s cell phone rang. Rowlend wasn’t sure whether he would get reception up here, especially at the tip of the moon’s crescent. But, there was reception and, unbeknownst to Rowlend, this was to be the most important phone call he would ever receive. At the other end of the line was none other than the Vice President of the United States of America. In other words, Rowlend was about to open communication with someone who, if the actual President were to unexpectedly perish despite being in quite good health, would become the most powerful super-monkey on a little rock somewhere inside an unimaginably — perhaps infinitely — vast Universe full of very, very interesting things.
 
@@ -137,9 +137,9 @@ Trey was born ready to order. Nonetheless, he asked about the specials.
 
 The server obliged: "On special today we have a consommé. The marriage of flavours creates a wonderful effect. We also have onion rings on special for $2 a ring."
 
-Erring on the side of caution (the consommé was in fact excellent), Trey ordered the fish and chips. The fish tasted a little off, but luckily he didn’t get food poissoning. For dessert, Trey ordered a baklava. It was the bees' niece. 
+Erring on the side of caution (the consommé was in fact excellent), Trey ordered the fish and chips. The fish tasted a little off, but luckily he didn’t get food poissoning. For dessert, Trey ordered a baklava. It was the bees' niece.
 
-Lunch was a success, but Trey now had very little time left to carry out his mission. For all intensive purposes, such as carrying out an assassination on short notice, Trey was decidedly incompetent. Or so it seemed to literally everyone including the author and, presumably, the reader.
+Lunch was a success, but Trey now had very little time left to carry out his mission. When it came to getting things done, such as carrying out an assassination on short notice, Trey was decidedly incompetent. Or so it seemed to literally everyone including the author and, presumably, the reader.
 
 Clarification
 ---------------
@@ -292,13 +292,21 @@ The investigating officer declined to comment.
 1 minute remaining
 -------------------
 
-Trey approached Zento with overdue care per Zento's beckon and call. "Trey," Zento shrieked, "We meet at least." At least she could have gotten her opening right, Trey thought. Without further adieu, Trey pointed his weapon and Zento and asked, "Any famous last words?"
+Trey approached Zento with overdue care per Zento's beckon and call. "Trey," Zento shrieked, "We meet at least." At least she could have gotten her opening right, Trey thought. Without further adieu, Trey pointed his weapon and Zento and asked, "Any famous last words? 'I am your father', etc?"
 
-Zento looked at Trey and spoke calmly: "Trey, you are a lost soul. Do not carry out this foul deed, for that is not who you are. Be true to yourself. Do not thrust upon yourself this..." and, here, she paused briefly. Then, she continued, "This... competence."
+"Well," Zento responded slowly and carefully, "I wasn't going to tell you, but if you most know... Bob's your uncle!" [[9]](https://en.wikipedia.org/wiki/Bob%27s_your_uncle)
 
-"I'm worried about returning home without having assassinated you. Do you think it'll all come out in the wash?" Trey asked.
+Trey was dumbstruck. "For all intensive porpoises, then --"
 
-"It's a wash," she responded. In that moment, Trey felt, Zento's gleaming face was to her countenance as his visage was to his physiognomy. An incredible calm and clarity descended upon him. Astounded, he turned around and headed home. He didn't know how it would all turn out, but he knew one thing for sure: he had a lot of laundry to do.
+" -- purposes!" Zento interrupted him midsentence.
+
+"Ah Zento, ever the pedant, even in your final moments," Trey replied. "Alright then, for all intensive _purposes_," Trey continued, "If Bob's my uncle, that makes me --"
+
+Zento interrupted Trey again, this time at the author's behest. "Trey, you are a lost soul. Do not carry out this foul deed, for that is not who you are. Be true to yourself. Do not thrust upon yourself this..." and, here, she paused briefly. Then, she continued, "This... competence."
+
+"But my mission. If I fail once more, do you think it will all come out in the wash?" Trey asked.
+
+"It's a wash," Zento responded. In that moment, Trey realized Zento's gleaming face was to her countenance as his visage was to his physiognomy. An incredible calm and clarity descended upon him. Astounded, he turned around and headed home. He didn't know how it would all turn out, but he knew one thing for sure: he had a lot of laundry to do.
 
 Afterwords
 ----------
@@ -317,4 +325,3 @@ Friday enjoyed standard poodle activities, like burying bones and frolicking in 
        | | |  _  | |___  | |___| |\  | |_| |
        |_| |_| |_|_____| |_____|_| \_|____/
 
-PS... Bob's your uncle! [[9]](https://en.wikipedia.org/wiki/Bob%27s_your_uncle)
